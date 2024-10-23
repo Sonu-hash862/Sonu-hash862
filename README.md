@@ -1,0 +1,1 @@
+Prompt a realistic pretty and Young woman with long wavy brunette hair wearing a trendy crop top and high waisted jeans she has a confident pose and a slight smile on her face she has flawless skin subtle makeup emphasizing her eyes and is accessorised with delicate gold jewelry the background is a chic urban setting with blurred city lights at dusk
